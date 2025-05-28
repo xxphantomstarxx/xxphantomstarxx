@@ -18,9 +18,9 @@ I do like horror quite a bit, so if you're bothered by that, you might not get a
 I'm an artist and game developer working on my own RPG games! I also play games and write on the side.
 
 ALL CURRENT PONIES: (this list *will* change over time, with ponies being added and removed)
-- ♥~dusk~♥ (oc pony **pride**)
-- ♥~pastel~♥ (oc pony **pride**)
-- ♥~sunset~♥ (oc pony **pride**)
+- ♥\~dusk~♥ (oc pony **pride**)
+- ♥\~pastel~♥ (oc pony **pride**)
+- ♥\~sunset~♥ (oc pony **pride**)
 - ✦ Hatsune Miku ✦ (vocaloid pony)
 - Amy (sonic pony)
 - Ashes (oc pony)
