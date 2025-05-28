@@ -7,6 +7,7 @@ FANDOMS I HAVE PONIES FOR: (not all ponies, however, are fandom-related)
 - Silent Hill
 - G3 MLP
 - Sonic
+- Vocaloid + other vocal synths
 - Halloween
 - My own OCs
 
