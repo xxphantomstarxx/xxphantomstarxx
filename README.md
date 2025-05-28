@@ -3,15 +3,6 @@ I have a lot of ponies made for a lot of fandoms and I really don't care if you 
 I'm offtab sometimes and talking in whispers other times. However, if you see me around, feel free to say hello!
 Just as a heads up, I'm from the 1990's.
 
-FANDOMS I HAVE PONIES FOR: (not all ponies, however, are fandom-related)
-- Gravity Falls
-- Silent Hill
-- G3 MLP
-- Sonic
-- Vocaloid + other vocal synths
-- Halloween
-- My own OCs
-
 I don't have a strict DNI other than no bigots or heavy discoursers of any flavor. Aside from that, I don't really care about your fandoms or whatever and go based off of how you treat people.
 I do like horror quite a bit, so if you're bothered by that, you might not get along with me too well.
 
