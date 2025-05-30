@@ -34,6 +34,7 @@ ALL CURRENT PONIES: (this list *will* change over time, with ponies being added 
 - Sonic (sonic pony)
 - Sparkleworks (g3 mlp pony)
 - Stoney Pony (oc pony)
+- Stormy (oc pony)
 - Sunny Daze (g3 mlp pony)
 - Wysteria (g3 mlp pony)
 
